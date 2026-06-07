@@ -1,0 +1,1 @@
+Ghost Innovations Ltd is a digital tech company based in Teeside specialising in producting ground-breaking products and services since 2018
